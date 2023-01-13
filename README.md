@@ -8,4 +8,4 @@
 
 <br>
 <br>
-<h2 align='center'>Terima Kasih:sunglasses:</h2>
+<h2 align='center'>Terima Kasih😘</h2>
